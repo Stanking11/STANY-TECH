@@ -3,7 +3,7 @@ align="center">
  </p>
  
  <a href="https://chat.whatsapp.com/DFmm1OBboewBk9kEDBrfNv">
- <img alt="STANY-TECH-MD" height="300" src="https://files.catbox.moe/eou4n8.jpeg".
+ <img alt="STANY-TECH-MD" height="300" src="https://files.catbox.moe/fqq387.jpg".
 
 </h1> 
 <p align="center">ɪ ɪɴᴛʀᴏᴅᴜᴄᴇ <b>𝕃
